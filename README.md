@@ -10,7 +10,7 @@
   🔷 **열정 · 성장 · 소통 그리고 꿈**　───　백엔드 개발 · 인적자원관리/개발
   <br />
   <br />
-  🔷 **pcy1203@snu.ac.kr**　───　<a href="https://bitter-clave-4b2.notion.site/Park-Chanyoung-9fae72efe3c840789b2551f860759967?pvs=74">More About Me...</a>
+  🔷 **pcy1203@snu.ac.kr**　───　<a href="https://bitter-clave-4b2.notion.site/Park-Chanyoung-9fae72efe3c840789b2551f860759967?pvs=74">More About Me...</a> (👈 포트폴리오 확인)
 
   <br />
 
